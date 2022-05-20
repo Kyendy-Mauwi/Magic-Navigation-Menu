@@ -10,5 +10,15 @@ I'm fun to build 🎆
 ![Screenshot (120)](https://user-images.githubusercontent.com/62172250/169553002-bb1dcd4a-0cec-42d4-bed4-b0c173ebd818.png)
 
 
-for more, watch the tutorial: https://www.youtube.com/watch?v=qzMy7yC9QvM
+for more watch:
+
+👉 https://www.youtube.com/watch?v=slti3MqJbGs&t=0s
+
+👉 https://www.youtube.com/watch?v=pubrK_AmqRg&t=0s
+
+👉 https://www.youtube.com/watch?v=P_A2kNpyQBs&t=0s
+
+👉 https://www.youtube.com/watch?v=zIYBrz1GlQQ&t=0s
+
+👉 https://www.youtube.com/watch?v=zB07dcKX9FA&t=0s
 
